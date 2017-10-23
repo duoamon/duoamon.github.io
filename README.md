@@ -1,1 +1,1 @@
-email:duoamon@qq.com
+my email:duoamon@qq.com
